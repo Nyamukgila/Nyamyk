@@ -1,1 +1,1 @@
-# Nyamyk
+# Nyamuk
